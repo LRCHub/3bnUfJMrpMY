@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "あなたがいいと",
+  "base_artist": "Olive Oil",
+  "createdAt": "2025-12-09T14:52:55.705082Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "あなたがいいと (feat. 柊人)",
+      "artist": "Olive Oil",
+      "has_synced": false,
+      "path": "select/pl_01_あなたがいいと_(feat._柊人)_Olive_Oil.txt"
+    }
+  ]
+}
