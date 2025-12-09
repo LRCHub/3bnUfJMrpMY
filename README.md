@@ -1,0 +1,65 @@
+# Olive Oil – あなたがいいと
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+誰にでもあるさ後悔は
+そっから先をどう変えた
+荒波を越えた航海は
+重荷じゃないさ　りっぱな財産
+ぶれそうになるたびに
+しーじゃーのガイダンス
+当たり前じゃないさ
+悲しんだ顔もうたくさん
+この舵は誰にも託さん
+戸惑う事もある
+What you gon do when they come for you
+止まる事なく
+Get ready for the day when they come for you
+Storyteller flipping slow paper
+感じたままに揺れた
+We gon rise and we gon find better
+感じたままに
+Dig it how you want it
+周りは気にせず
+日々の疲れを癒やしてmold it
+この身削ってwe gon shine the dime yeah
+体は捨てて
+Raise it up raise it ありのまま
+We don't need alot
+Raise it up raise it ありのまま　ありのまま
+あなたがいいと思えたなら
+新たな日もその手の中
+今世界はWhat whatever
+"好きにして"
+叶えたい願い　口にする
+あなたがいいと思えるから
+You just don't know
+You just don't know
+You just don't know
+You just don't know
+ここで交わるMe and Myself and I
+語り合う小さなhate
+よりもloveよりもlove
+味わう共に味わう
+味付けにありつけ噛み締めるma life
+Every day hustle hard
+泥水啜って元気な蓮の葉
+時計は買えても時間は買えないから
+時にあえての道悪くないから
+毎日生き帰り　死ぬのは一回きり
+夢の追いかけ方　from the Bambaataa
+全て考え方なら
+あなたがいいと思えたなら
+新たな日もその手の中
+今世界はWhat whatever
+"好きにして"
+叶えたい願い　口にする
+あなたがいいと思えるから
+You just don't know
+You just don't know yet
+Don't know
+You just don't know yet
+You just don't know
+You just don't know
+```
